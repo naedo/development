@@ -1,4 +1,7 @@
-## naedo development privacy policy
+## Support
+Contact me at naedodevelopment@gmail.com.
+
+## naedo development Privacy Policy
 
 **Privacy Policy**
 
